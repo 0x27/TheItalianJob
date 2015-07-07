@@ -18,3 +18,5 @@ Greetz to Phineas Fisher, you fucking hero.
 ![Fuck HackingTeam](https://raw.githubusercontent.com/0x27/TheItalianJob/master/screenshot.jpg)
 
 Licence: WTFPL.
+
+More fingerprints to add now that their sekret sauce is public thanks to our lord and saviour.
